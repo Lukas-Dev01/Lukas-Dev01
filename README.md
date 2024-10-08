@@ -1,4 +1,4 @@
-# 👨‍💻 Lukas - A Passionate Developer - From Lithuania
+# 👨‍💻 Lukas - An Innovative Developer - From Lithuania 
 
 **`Digital Craftsman (Programmer/Coder/Developer/Creator)`**
 
