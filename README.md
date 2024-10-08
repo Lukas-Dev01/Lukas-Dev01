@@ -1,4 +1,4 @@
-# 👨‍💻 Lukas - An Innovative Developer - From Lithuania
+# Lukas - An Innovative Developer - From Lithuania
 
 # About Me:
 
