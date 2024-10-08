@@ -1,6 +1,6 @@
 # 👨‍💻 Lukas - An Innovative Developer - From Lithuania 
 
-**`Digital Craftsman (Programmer/Coder/Developer/Creator)`**
+**`Digital Developer`**
 
 # About Me:
 
